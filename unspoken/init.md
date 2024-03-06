@@ -1,1 +1,17 @@
+# Unspoken Sermons Notes
+
+## Series 3, Page. 25. Please replace Italian with English:
+
+```
+And he : “If I were made of leaded glass
+Thine outward image I should not attract 
+Sooner to me than I imprint the inner.
+```
+
+## Series 3, Page 99-100.  Please only read the (included) English translation.
+
+Here there are two instances where we have the Italian first and then an English translation immediately following.  In both cases, please just ignore the Italian and only read the English.
+
+
+
 
