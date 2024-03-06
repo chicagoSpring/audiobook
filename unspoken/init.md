@@ -1,6 +1,6 @@
 # Unspoken Sermons Notes
 
-## Series 3, Page. 25. Please replace Italian with English:
+## Series 3, Page 25. Please replace Italian with English:
 
 ```
 And he : “If I were made of leaded glass
